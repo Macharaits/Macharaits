@@ -5,4 +5,3 @@
 - 📫 How to reach me: mail: vachamacharaic@mail.ru
                       telegram : @masharaits
                       mobile : +79313059516
-# I am looking for a job
